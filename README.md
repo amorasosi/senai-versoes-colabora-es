@@ -1,1 +1,0 @@
-# senai-versoes-colabora-es
